@@ -1,1 +1,1 @@
-This is a group project produced by Keneilwe Moremedi and Londiwe Khumalo
+This is a group project by Keneilwe Moremedi and Londiwe Khumalo
